@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEPK971203MBCRRN06
+HEPK971203MBCRRN06
